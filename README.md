@@ -75,6 +75,7 @@ Topluluğumuza katılmak için:
 - Takım ruhuna inanman yeterli!
 Üye olmak veya ekibe katılmak için Web sitemizdeki formlara bekliyoruz 😉
 -https://gtubt.com
+
 **Sohbet etmeyi, paylaşmayı, üretmeyi seven herkes** burada kendine yer bulur 💚  
 
 ---
